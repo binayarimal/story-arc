@@ -2,8 +2,9 @@
 
 ## Chapter 1: Characters
 
-Our story begins with...
-
+Wizard from the waverly place
+A rock that like to role
+A witch that loves her cave
 
 ## Chapter 2: Quest
  find the broken pinky 
