@@ -2,7 +2,7 @@
 
 ## Chapter 1: Characters
 
-Charlie - A wizard that lives in cave and hate.
+Charlie - A wizard that lives in cave.
 Bob - A builder.
 Glenda - The terrible witch.
 
