@@ -2,8 +2,9 @@
 
 ## Chapter 1: Characters
 
-Our story begins with...
-
+Charlie - A wizard that lives in cave and hate.
+Bob - A builder.
+Glenda - The terrible witch.
 
 ## Chapter 2: Quest
 
