@@ -6,7 +6,7 @@ Our story begins with...
 
 
 ## Chapter 2: Quest
-
+ find the broken pinky 
 
 ## Chapter 3: Hardship
 
