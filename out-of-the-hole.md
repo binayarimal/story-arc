@@ -14,7 +14,7 @@ the poor girl couldnt figure out this tech stuff and it made her really sad... I
 
 
 ## Chapter 4: Recovery
-
+she figured out she can use her magic to find the rock
 
 ## Chapter 5: Happily ever after
 
