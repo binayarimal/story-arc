@@ -7,7 +7,7 @@ A rock that like to role
 A witch that loves her cave
 
 ## Chapter 2: Quest
- find the broken pinky 
+ Wizard lost the rock, witch must find it outside her cave  
 
 ## Chapter 3: Hardship
 
